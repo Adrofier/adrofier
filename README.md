@@ -1,1 +1,1 @@
-![image_gif](upd.gif)
+![image_gif](motherBoard.gif)
